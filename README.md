@@ -9,7 +9,7 @@
 - Fandom stuff
 - Note-taking apps
 - Telegram bots and mini apps
-- Wanna be obsessed with this https://github.com/firstcontributions/first-contributions
+- Wanna be obsessed with this [contribution stuff](https://github.com/firstcontributions/first-contributions)
 - And more? 
 
 # My stats 🔢
@@ -20,9 +20,9 @@
 
 
 # Find me elsewhere if you like
-[LinkedIn] (linkedin.com/in/theomasunga)
-[Product hunt] (producthunt.com/nwoloti)
-[Twitter] (x.com/nwoloti)
+[LinkedIn](linkedin.com/in/theomasunga)
+[Product hunt](producthunt.com/nwoloti)
+[Twitter](x.com/nwoloti)
 
 - Ok, I'm gonna jam to Nicki Minaj 👑, Ariana Grande ☁, or whoever my shuffle suggests 🔀.
 - Sure, sure!
