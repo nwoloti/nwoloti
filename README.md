@@ -26,6 +26,7 @@ Hello! Dumilani! I'm Theo, or as my username says, nwoloti. I'm relearning how t
 [![](https://visitcount.itsvg.in/api?id=nwoloti&icon=0&color=0)](https://visitcount.itsvg.in)
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
-
  Ok, I'm gonna jam to Nicki Minaj 👑, Ariana Grande ☁, or whoever my shuffle suggests 🔀.<br>
  Sure, sure!
+
+⭐ _whispering_ this was made on [GPRM](https://gprm.itsvg.in/)
