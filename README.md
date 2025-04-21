@@ -29,4 +29,4 @@ Hello! Dumilani! I'm Theo, or as my username says, nwoloti. I'm relearning how t
  Ok, I'm gonna jam to Nicki Minaj 👑, Ariana Grande ☁, or whoever my shuffle suggests 🔀.<br>
  Sure, sure!
 
-⭐ _whispering_ this was made on [GPRM](https://gprm.itsvg.in/)
+⭐ _whispers_ this was made on [GPRM](https://gprm.itsvg.in/)
