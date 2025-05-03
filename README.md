@@ -8,6 +8,7 @@ Hello! Dumilani! I'm Theo, or as my username says, nwoloti. I'm relearning how t
  📝 Note-taking apps *coming soon*<br>
  💬 Telegram bots and mini apps *coming soon*<br>
  1️⃣ Wanna be obsessed with this [contribution stuff](https://github.com/firstcontributions/first-contributions)<br>
+ 🎮 checkout my [itchio](https://nwoloti.itch.io/) games<br>
  🥱 bored? Check out this game [site](https://neal.fun)<br>
  🍌🍌 And more? 
 
