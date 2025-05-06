@@ -13,7 +13,6 @@ Hello! Dumilani! I'm Theo, or as my username says, nwoloti. I'm relearning how t
  🍌🍌 And more? 
 
 ## Find me elsewhere
-👔 [LinkedIn](linkedin.com/in/theomasunga)<br>
 🔼 [Product hunt](https://www.producthunt.com/@nwoloti)<br>
 🐦 [Twitter](x.com/nwoloti)
 
